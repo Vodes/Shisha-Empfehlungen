@@ -27,7 +27,7 @@ Alle Smokebox fähig
 [Amy](https://www.amazon.de/dp/B07N8ZBLJ6)
 - Kamin & Sieb (KS Appo / Tonkopf) <br />
 [Kamin (Amazon)](https://www.amazon.de/s?k=kamin+shisha+aladin) <br />
-[Sieb (Amazon)](https://www.amazon.de/s?k=shisha+sieb)
+[Sieb (Amazon)](https://www.amazon.de/s?k=shisha+sieb)<br />
 
 
 # Pfeifen
