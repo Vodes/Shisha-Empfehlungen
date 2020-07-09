@@ -12,14 +12,14 @@ Alle Smokebox fähig
 - Oblako Phunnel M<br/>
 [ShishaCloud](https://www.shishacloud.de/tabakkoepfe/oblako/phunnel-m/)
 - Ocean Sixty8<br/>
-[Shisha-Nil](https://www.shisha-nil.de/search?sSearch=ocean+sixty)
+[Shisha-Nil](https://www.shisha-nil.de/search?sSearch=ocean+sixty)<br/>
 ### Mehrloch
 - KS Appo<br/>
 [Shisha-World](https://www.shisha-world.com/#search:query=ks+appo)<br/>
 [Shisha-Nil](https://www.shisha-nil.de/search?sSearch=ks-appo&p=1)<br/>
 [Amazon](https://www.amazon.de/s?k=ks+appo+steinkopf+edition)
 - Oblako Killer Bowl<br/>
-[ShishaCloud](https://www.shishacloud.de/tabakkoepfe/oblako/killer-bowl/?p=1)
+[ShishaCloud](https://www.shishacloud.de/tabakkoepfe/oblako/killer-bowl/?p=1)<br/>
 #### Aufsätze
 - Smokeboxen (für Phunnel & Killer Bowl)<br/>
 [M.Rosenfeld](https://www.amazon.de/dp/B07SZTTN3X/)<br/>
