@@ -37,6 +37,7 @@ Alle Smokebox fähig
 [Shisha-World](https://www.shisha-world.com/shishas#search:query=aladin+mpv+360)
 - Invi Paradox <br />
 [Shisha-World](https://www.shisha-world.com/#search:query=invi+paradox)
+
 ## < 200€
 - Invi Reflexion Edelstahl <br />
 [Shisha-World](https://www.shisha-world.com/#search:query=invi+reflexion+edelstahl)
