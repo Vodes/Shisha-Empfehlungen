@@ -2,23 +2,23 @@
 
 ##   Phunnel
 Alle Smokebox fähig
-- Werkbund Zeus <br />
+- [Werkbund Zeus](https://youtu.be/xrWmKjSQcic?t=192) <br />
 [Amazon](https://www.amazon.de/s?k=werkbund+zeus) <br />
 [ShishaCloud](https://www.shishacloud.de/search?sSearch=werkbund+zeus)
-- Harmony Bowl <br />
+- [Harmony Bowl](https://youtu.be/GnELILP1IJQ?t=116) <br />
 [Amazon](https://www.amazon.de/s?k=hookah+john+harmony+bowl) <br />
 [Shisha-World](https://www.shisha-world.com/#search:query=harmony+bowl)
-- Oblako Phunnel M <br />
+- [Oblako Phunnel M](https://youtu.be/AT4CnDGoAbc?t=409) <br />
 [ShishaCloud](https://www.shishacloud.de/tabakkoepfe/oblako/phunnel-m/)
-- Ocean Sixty8 <br />
+- [Ocean Sixty8](https://youtu.be/UpZC9NTiudg?t=210) <br />
 [Shisha-Nil](https://www.shisha-nil.de/search?sSearch=ocean+sixty)
 
 ## Mehrloch
-- KS Appo<br />
+- [KS Appo](https://youtu.be/tpCBswrWb3E?t=39)<br />
 [Shisha-World](https://www.shisha-world.com/#search:query=ks+appo)<br />
 [Shisha-Nil](https://www.shisha-nil.de/search?sSearch=ks-appo&p=1)<br />
 [Amazon](https://www.amazon.de/s?k=ks+appo+steinkopf+edition)
-- Oblako Killer Bowl<br />
+- [Oblako Killer Bowl](https://youtu.be/Fm_7drEbOUg?t=91)<br />
 [ShishaCloud](https://www.shishacloud.de/tabakkoepfe/oblako/killer-bowl/?p=1)
 
 ### Aufsätze
